@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tairaxx
 - 👀 I’m interested in ... The sports
-- 🌱 I’m currently learning ... English and new games 
+- 🌱 I’m currently learning ...  English and new games 
 - 💞️ I’m looking to collaborate on ... The future 
 - 📫 How to reach me ... Discord: soy_taira
 - 😄 Pronouns: ... The patroness
